@@ -1,1 +1,2 @@
-# La-carrera-por-los-minerales-cr-ticos-en-la-nueva-era-geopol-tica
+# La-carrera-por-los-minerales-críticos-en-la-nueva-era-geopol-tica
+La transición hacia una economía descarbonizada y el avance de tecnologías como la inteligencia artificial (IA) y las redes 5G han desencadenado una creciente competencia global por asegurar el acceso a los minerales críticos. Estos recursos, esenciales para el desarrollo de tecnologías de vanguardia, juegan un papel fundamental en el diseño de un futuro digital y sostenible. En este contexto, China, con su iniciativa de la Belt and Road (BRI), ha ampliado su influencia geopolítica, generando una nueva dinámica global donde los minerales estratégicos se convierten en una pieza clave del tablero.
